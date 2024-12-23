@@ -1,5 +1,8 @@
 continue from here
-https://youtu.be/TTx7Y3a7EmA?t=4015
+https://youtu.be/TTx7Y3a7EmA?t=4424
+
+
+https://youtu.be/TTx7Y3a7EmA?t=5371
 
 
 
