@@ -1,6 +1,6 @@
 continue from here
-https://youtu.be/TTx7Y3a7EmA?t=4424
 
+understand how this local storage concept is working and then continue the video
 
 https://youtu.be/TTx7Y3a7EmA?t=5371
 
